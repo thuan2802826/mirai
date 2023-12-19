@@ -1,2 +1,1 @@
-# mirai
-dell phải cốt=)
+dell phải pờ rồ cốt=)
